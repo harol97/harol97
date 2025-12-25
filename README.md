@@ -8,6 +8,6 @@ I'm harol alvarado
 
 📚 Always learning, always improving
 
-- Linkedin: [https://www.linkedin.com/in/harol-alvarad](https://www.linkedin.com/in/harol-alvarado-874222158/)
+- Linkedin: [https://www.linkedin.com/in/harol-alvarado](https://www.linkedin.com/in/harol-alvarado-874222158/)
 
 
